@@ -25,7 +25,7 @@
    <img src="https://files.catbox.moe/4386rj.gif" width="21"/>
 [<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://www.tiktok.com/@)
 <img src="https://files.catbox.moe/4386rj.gif" width="21"/>
-[<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://bugsburger.atabook.org/)
+[<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://sheewsky.atabook.org/)
 <p align="center">
 </p>
 <p align="center">
