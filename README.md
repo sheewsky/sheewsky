@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-<img src="https://hits.sh/github.com/BugsInMyBurger.svg?style=for-the-badge&label=UNIVERSES%20TRAVELLED&extraCount=2100&labelColor=29b100" width="180"/>
+<img src="https://hits.sh/github.com/sheewsky.svg?style=for-the-badge&label=UNIVERSES%20TRAVELLED&extraCount=2368&labelColor=29b100" width="180"/>
 </p>
 
 <p align="center">
