@@ -23,13 +23,13 @@
 
   [<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://discord.com/users/896331623212134442)
    <img src="https://files.catbox.moe/4386rj.gif" width="21"/>
-[<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://www.tiktok.com/@bugsinburger)
+[<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://www.tiktok.com/@)
 <img src="https://files.catbox.moe/4386rj.gif" width="21"/>
 [<img src="https://files.catbox.moe/2c0i4s.png" width="80"/>](https://bugsburger.atabook.org/)
 <p align="center">
 </p>
 <p align="center">
-  <img src="https://files.catbox.moe/w7qubt.gif" width="15"/> ↑ discord <img src="https://files.catbox.moe/f0rp3t.gif" width="15"/> tiktok <img src="https://files.catbox.moe/d9838s.gif" width="15"/> atabook <img src="https://files.catbox.moe/o7wrmn.gif" width="15"/>
+  <img src="https://files.catbox.moe/w7qubt.gif" width="15"/> ↑ discord <img src="https://files.catbox.moe/f0rp3t.gif" width="15"/> tiktok(later,,) <img src="https://files.catbox.moe/d9838s.gif" width="15"/> atabook <img src="https://files.catbox.moe/o7wrmn.gif" width="15"/>
 </p>
 
 <img src="https://files.catbox.moe/v5ammp.gif" width="400"/>
@@ -38,7 +38,7 @@
   <details>
     <summary><u>abt me :trollface:<img src="https://files.catbox.moe/b9hxlw.gif" width="15"/></u></summary
     <br>
-    Hi hi hello !!! ^_^ I'm Sasha (or Burger, or BBurger)
+    Hi hi hello !!! ^_^ I'm Sasha (or Sheewsky)
 I love eating burgers and playing Minecraft
     I'm very #cool and #NOTALoser
 
